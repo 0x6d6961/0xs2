@@ -1,3 +1,3 @@
-slowly getting into this again....... <3
+## hey!
 
-archived most of the stuff i have worked on [here](https://git.0xs.dev/0x)
+i am a bit rusty at coding now ^n^ i will try to get into the swing of it again shortly !
